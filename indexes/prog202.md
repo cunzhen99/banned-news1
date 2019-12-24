@@ -25,3 +25,6 @@
 
 ----
 #### [ >>> 更早内容 <<< ](../indexes/prog202-earlier.md?t=12241156)
+
+----
+#### [ >>> 更早内容 <<< ](../indexes/prog202-earlier.md)
