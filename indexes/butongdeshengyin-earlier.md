@@ -1,3 +1,4 @@
+#### [专栏 | 不同的声音：接受耿爽建议：关注中国普通人“为自由而战”的民意](../pages/butongdeshengyin/jkdv-10112019153458.md)
 #### [专栏 | 不同的声音：十年寻衅不成滋事张贾龙 一旦秋后问斩倒算糊涂账](../pages/butongdeshengyin/jkdv-08162019140705.md)
 #### [专栏 | 不同的声音：纽时：香港沙文主义怼中国民族主义](../pages/butongdeshengyin/jkdv-10232019164528.md)
 #### [专栏 | 不同的声音：访本土市民吕新华：第三只眼看阳逻“骚乱”](../pages/butongdeshengyin/jkdv-07102019155732.md)
