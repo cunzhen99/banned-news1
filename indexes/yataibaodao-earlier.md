@@ -1,3 +1,4 @@
+#### [CECC报告：习近平上台后 中国人权更恶化](../pages/yataibaodao/rc-01082020102556.md)
 #### [加拿大华裔富豪遭分尸  华人圈问题曝光](../pages/yataibaodao/lf-01082020132406.md)
 #### [驳双重国籍  韩国瑜频出怪招赌脱困](../pages/yataibaodao/hx2-01082020124734.md)
 #### [钢铁蓝 VS. 辣椒红   台湾大选蓝绿调色抢夺选民](../pages/yataibaodao/hx1-01082020105341.md)
