@@ -1,3 +1,4 @@
+#### [评论 | 刘青：大陆医患悲剧的后面因素](../pages/pinglun/liuqing-01072020102525.md)
 #### [评论 | 傅申奇：专制暴政的丧钟](../pages/pinglun/fushenqi-01062020100852.md)
 #### [评论 | 王丹：2020年中国经济的几个看点](../pages/pinglun/wangdan-01062020102700.md)
 #### [唯色RFA博客：看见这样的景致我差点落泪……](../pages/pinglun/weise-01062020100249.md)
