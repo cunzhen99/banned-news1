@@ -1,3 +1,4 @@
+#### [美学者：中共的新疆镇压是种族摧残](../pages/yataibaodao/hc-01162020101547.md)
 #### [蔡英文政府驳斥更改“国号”指控](../pages/yataibaodao/hcm-01172020131832.md)
 #### [美国在台协会：美台关系基于共同价值观](../pages/yataibaodao/hx2-01172020122523.md)
 #### [中国GDP成功保六  增速近三十年最慢](../pages/yataibaodao/gf1-01172020114137.md)
