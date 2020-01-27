@@ -1,3 +1,6 @@
+#### [专栏 | 不同的声音：虹口变堂口 倭区成红区：景云里强迁新语](../pages/butongdeshengyin/jkdv-08022019104512.md)
+#### [专栏 | 不同的声音：香港学生领袖 “众志”秘书长黄之锋台北演讲](../pages/butongdeshengyin/jkdv-09042019154401.md)
+#### [专栏 | 不同的声音：析环时科大假新闻：港生坠楼不治后陆生全校逃难](../pages/butongdeshengyin/jkdv-11132019161103.md)
 #### [专栏 | 不同的声音：接受耿爽建议：关注中国普通人“为自由而战”的民意](../pages/butongdeshengyin/jkdv-10112019153458.md)
 #### [专栏 | 不同的声音：十年寻衅不成滋事张贾龙 一旦秋后问斩倒算糊涂账](../pages/butongdeshengyin/jkdv-08162019140705.md)
 #### [专栏 | 不同的声音：纽时：香港沙文主义怼中国民族主义](../pages/butongdeshengyin/jkdv-10232019164528.md)

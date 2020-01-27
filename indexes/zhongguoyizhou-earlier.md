@@ -1,5 +1,3 @@
-#### [专栏 | 中国一周（2019年12月14日-12月20日）](../pages/zhongguoyizhou/review-12192019165003.md)
-#### [专栏 | 中国一周（2019年11月09日-11月15日）](../pages/zhongguoyizhou/review-11142019162515.md)
 #### [专栏 | 中国一周（2019年8月17日-8月23日）](../pages/zhongguoyizhou/review-08222019153909.md)
 #### [专栏 | 中国一周（2019年12月07日-12月13日）](../pages/zhongguoyizhou/review-12122019155552.md)
 #### [专栏 | 中国一周（2019年11月30日-12月06日）](../pages/zhongguoyizhou/review-12052019160621.md)
