@@ -1,3 +1,4 @@
+#### [武汉肺炎致死率低于SARS 法国专机撤侨  ](../pages/yataibaodao/cl-01262020161827.md)
 #### [武汉肺炎欧洲首例 法国透明化三病例讯息](../pages/yataibaodao/cl-01252020152034.md)
 #### [湖北15市停运 “封城”真是良策吗？](../pages/yataibaodao/hc-01242020100838.md)
 #### [习近平能否打赢病毒战？](../pages/yataibaodao/cc-01242020100856.md)
